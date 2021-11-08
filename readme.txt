@@ -1,1 +1,2 @@
-We're all gonna make it
+We're all gonna make it.
+Just believe.
